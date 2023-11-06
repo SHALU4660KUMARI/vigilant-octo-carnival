@@ -15,7 +15,7 @@ int main()
 
 # misc
 .DS_Storage
-.env.locality
+.env.galaxy_end.war
 .env.development.local_webstack
 .env.test.local_stackdevOps
 .env.production.local_devstacks
