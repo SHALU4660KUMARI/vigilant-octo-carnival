@@ -2,7 +2,8 @@ The Galaxy End_War
 
 # vigilant-octo-carnival
 
-!![image](https://github.com/SHALU4660KUMARI/vigilant-octo-carnival/assets/148706501/5373d3a9-afed-4850-8cd9-957df992d146)
+{
+![image](https://github.com/SHALU4660KUMARI/vigilant-octo-carnival/assets/148706501/5373d3a9-afed-4850-8cd9-957df992d146)
 
 Galaxy is a unique Subway of planets, stars and moon's.
 The milkiway galaxy is the second last subway galaxy before which is vast Emeralds galaxy which have huge Sun as a star and which is not the brightest among other stars, in comparison.
