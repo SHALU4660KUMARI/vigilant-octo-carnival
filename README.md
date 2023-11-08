@@ -12,7 +12,7 @@ Solar rays are hereby very much delicate for the aforementioned galaxy "Emeralds
 
 No one knows what kind of creatures they are or what kind of aliens they are, maybe like us or more poor in brain segmentation.
 
-After planet Earth Endwar, the eclipse will turn red and the third last planet will grow life on every 56th planets through energies that we grow on the earth.
+After planet Earth Endwar, the eclipse will turn red and the third last planet will grow life on every 56th planets through energies that we grow on planet earth.
 
 Positive energy will reach quickly and negative will reach later like dimensions of monarchy innocense and unlike 21st century unholy democracy.
 
