@@ -8,7 +8,7 @@ The Galaxy End_War
 Galaxy is a unique Subway of planets, stars and moon's.
 The milkiway galaxy is the second last subway galaxy before which is vast Emeralds galaxy which have huge Sun as a star and which is not the brightest among other stars, in comparison.
 
-Solar rays are hereby very much delicate for the aforementioned galaxy Emeralds and it have 56 planets having no life or maybe it can have somewhat of it but no one knows on which planet.
+Solar rays are hereby very much delicate for the aforementioned galaxy "Emeralds" and it have 56 planets having no life or maybe it can have somewhat of it but no one knows on which planet.
 
 No one knows what kind of creatures they are or what kind of aliens they are, maybe like us or more poor in brain segmentation.
 
